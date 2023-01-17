@@ -8,6 +8,6 @@
 
 - My goal is to land a full-time software developer job and start studying computer science part-time 🕰️👨🏽‍💼
 
-- I like gaming, going out, and specially, code ♥️🎉💼
+- I like gaming, going out, and specially, coding ♥️🎉💼
 
                 
