@@ -6,7 +6,7 @@
 
 - Learning to code along with computer science fundamentals 💻 🧑🏽‍💻 
 
-- My goal is to land a full-time software developer job while building  🕰️👨🏽‍💼
+- My short-term goal is to land a full-time software developer job  🕰️👨🏽‍💼
 
 - I like gaming, going out, coding, and specially, acting ♥️🎉💼
 
