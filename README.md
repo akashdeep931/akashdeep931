@@ -6,8 +6,8 @@
 
 - Learning to code along with computer science fundamentals 💻 🧑🏽‍💻 
 
-- My goal is to land a full-time software developer job and enrol at a uni to study computer science part-time 🕰️👨🏽‍💼
+- My goal is to land a full-time software developer job while building  🕰️👨🏽‍💼
 
-- I like gaming, going out, and specially, coding ♥️🎉💼
+- I like gaming, going out, coding, and specially, acting ♥️🎉💼
 
                 
