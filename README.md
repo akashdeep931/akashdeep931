@@ -1,12 +1,10 @@
 ### Hello GitHub fellas 👋 👋 
 
-- I am former logistic specialist from Barcelona ⚓️🇪🇸
+- I am a Junior Software Developer based in Birmingham 🇬🇧🛩️ 
 
-- Currently living in Birmingham 🇬🇧🛩️ 
+- Learning new concepts/things every day related to computer science 💻 🧑🏽‍💻 
 
-- Learning to code along with computer science fundamentals 💻 🧑🏽‍💻 
-
-- My short-term goal is to land a full-time software developer job  🕰️👨🏽‍💼
+- Seeking for a Junior Software Developer role 🕰️👨🏽‍💼
 
 - I like gaming, learning, coding, and specially, crafting new things ♥️🎉💼
 
