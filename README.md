@@ -2,7 +2,7 @@
 
 - I am a Junior Software Developer based in Birmingham 🇬🇧🛩️ 
 
-- Learning new concepts/things every day related to computer science 💻 🧑🏽‍💻 
+- Learning new concepts/things every day related to software engineering 💻 🧑🏽‍💻 
 
 - Seeking for a Junior Software Developer role 🕰️👨🏽‍💼
 
