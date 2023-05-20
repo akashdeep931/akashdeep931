@@ -6,6 +6,6 @@
 
 - Seeking for a Junior Software Developer role 🕰️👨🏽‍💼
 
-- I like gaming, learning, coding, and specially, crafting new things ♥️🎉💼
+- I like gaming, learning, solving katas, and specially, crafting new things ♥️🎉💼
 
                 
