@@ -1,9 +1,7 @@
-### Hello GitHub fellas 👋 👋 
+### Hey 👋 👋 
 
-- I am a Software Engineer based in Birmingham 🇬🇧🛩️ 
+- I am a Software Engineer based in the United Kingdom 🇬🇧🛩️
 
 - Learning new concepts/things every day related to software engineering 💻 🧑🏽‍💻 
-
-- I like gaming, learning, solving katas, and specially, crafting new things ♥️🎉💼
 
                 
